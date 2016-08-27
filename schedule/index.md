@@ -4,6 +4,7 @@ title: Schedule
 ---
 
 We invite beginners and experienced practitioners alike. All events are free. Unless otherwise noted, all these events are held at 
+
 ##### Suite 331 General Washington Executive Center
 ##### 217 Princess Anne St., Fredericksburg, VA
 This is across the street from Carl's Ice Cream. There is an elevator in the building. We are on the third floor.
