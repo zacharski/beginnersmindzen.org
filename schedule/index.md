@@ -8,6 +8,7 @@ We invite beginners and experienced practitioners alike. All events are free. Un
 ##### Suite 331 General Washington Executive Center
 
 ##### 217 Princess Anne St., Fredericksburg, VA
+
 This is across the street from Carl's Ice Cream. There is an elevator in the building. We are on the third floor.
 
 #### Tuesday Weekly Practice
@@ -30,7 +31,7 @@ This will be an *annotated* Zen Buddhist services which include chanting, medita
 #### Sunday Zen 101 Book Study
 
 ##### TBD
-The next book we will be discussing is  <span class='marginnote'><img class="fullwidth" src="/img/jerk2.png"> </span> are discussing the book [*Don't Be a Jerk: And Other Practical Advice from Dogen, Japan's Greatest Zen Master*](https://www.amazon.com/Dont-Be-Jerk-Practical-Greatest/dp/1608683885/ref=sr_1_1?ie=UTF8&qid=1472264377&sr=8-1&keywords=don%27t+be+a+jerk) by Brad Warner. Stay tuned for more information. We should be starting the group shortly.
+The next book we will be discussing is  <span class='marginnote'><img class="fullwidth" src="/img/jerk2.png"> </span>[*Don't Be a Jerk: And Other Practical Advice from Dogen, Japan's Greatest Zen Master*](https://www.amazon.com/Dont-Be-Jerk-Practical-Greatest/dp/1608683885/ref=sr_1_1?ie=UTF8&qid=1472264377&sr=8-1&keywords=don%27t+be+a+jerk) by Brad Warner. Stay tuned for more information. We should be starting the group shortly.
 
 From the book's description:
 
