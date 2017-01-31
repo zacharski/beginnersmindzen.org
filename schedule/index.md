@@ -23,21 +23,23 @@ We have a few meditation cushions you can use as well as a few chairs. If you ha
 For current information please see our [Meetup Page](http://www.meetup.com/Beginners-Mind-Zen/).
 
 
+
+
+#### Sunday Zen 101 Book Study
+
+##### Salem Church Library 1pm
+Regardless of which book we are discussing, the goal of the group is to support each other as we navigate our lives. 
+
+The current book we are discussing is  <span class='marginnote'><img class="fullwidth" src="/img/fallApart.jpg"> </span>[*When Things Fall Apart: Heart Advice for Difficult Times*](https://www.amazon.com/When-Things-Fall-Apart-Anniversary/dp/1611803438/ref=sr_1_1?ie=UTF8&qid=1485865479&sr=8-1&keywords=pema+chodron) by Pema Chodron. Check our [Meetup Page](http://www.meetup.com/Beginners-Mind-Zen/) to see where we currently are in the book.
+
+From the book's description:
+
+> How can we live our lives when everything seems to fall apart—when we are continually overcome by fear, anxiety, and pain? The answer, Pema Chödrön suggests, might be just the opposite of what you expect. Here, in her most beloved and acclaimed work, Pema shows that moving toward painful situations and becoming intimate with them can open up our hearts in ways we never before imagined. Drawing from traditional Buddhist wisdom, she offers life-changing tools for transforming suffering and negative patterns into habitual ease and boundless joy.
+
 #### Sunday Formal Zen Service
 
 ##### September 11, 2pm
 This will be an *annotated* Zen Buddhist services which include chanting, meditation, and a short dharma discussion. By *annotated* we mean that periodically we will stop the service to explain the significance of what we are doing ([meetup page](http://www.meetup.com/Beginners-Mind-Zen/)).
-
-#### Sunday Zen 101 Book Study
-
-##### TBD
-The next book we will be discussing is  <span class='marginnote'><img class="fullwidth" src="/img/jerk2.png"> </span>[*Don't Be a Jerk: And Other Practical Advice from Dogen, Japan's Greatest Zen Master*](https://www.amazon.com/Dont-Be-Jerk-Practical-Greatest/dp/1608683885/ref=sr_1_1?ie=UTF8&qid=1472264377&sr=8-1&keywords=don%27t+be+a+jerk) by Brad Warner. Stay tuned for more information. We should be starting the group shortly.
-
-From the book's description:
-
-> The Shobogenzo (The Treasury of the True Dharma Eye) is a revered eight-hundred-year-old Zen Buddhism classic written by the Japanese monk Eihei Dogen. Despite the timeless wisdom of his teachings, many consider the book difficult to understand and daunting to read. In Don’t Be a Jerk, Zen priest and bestselling author Brad Warner, through accessible paraphrasing and incisive commentary, applies Dogen’s teachings to modern times. While entertaining and sometimes irreverent, Warner is also an astute scholar who sees in Dogen very modern psychological concepts, as well as insights on such topics as feminism and reincarnation. Warner even shows that Dogen offered a “Middle Way” in the currently raging debate between science and religion. For curious readers worried that Dogen’s teachings are too philosophically opaque, Don’t Be a Jerk is hilarious, understandable, and wise.
-
-
 Please consider joining us!
 
 
