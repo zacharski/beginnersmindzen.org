@@ -25,25 +25,12 @@ For current information please see our [Meetup Page](http://www.meetup.com/Begin
 
 
 
-#### Sunday Zen 101 Book Study
-
-##### Salem Church Library 1pm
-Regardless of which book we are discussing, the goal of the group is to support each other as we navigate our lives. 
-
-The current book we are discussing is  <span class='marginnote'><img class="fullwidth" src="/img/fallApart.jpg"> </span>[*When Things Fall Apart: Heart Advice for Difficult Times*](https://www.amazon.com/When-Things-Fall-Apart-Anniversary/dp/1611803438/ref=sr_1_1?ie=UTF8&qid=1485865479&sr=8-1&keywords=pema+chodron) by Pema Chodron. Check our [Meetup Page](http://www.meetup.com/Beginners-Mind-Zen/) to see where we currently are in the book.
-
-From the book's description:
-
-> How can we live our lives when everything seems to fall apart—when we are continually overcome by fear, anxiety, and pain? The answer, Pema Chödrön suggests, might be just the opposite of what you expect. Here, in her most beloved and acclaimed work, Pema shows that moving toward painful situations and becoming intimate with them can open up our hearts in ways we never before imagined. Drawing from traditional Buddhist wisdom, she offers life-changing tools for transforming suffering and negative patterns into habitual ease and boundless joy.
 
 #### Sunday Formal Zen Service
 
-##### September 11, 2pm
+##### TBD
 This will be an *annotated* Zen Buddhist services which include chanting, meditation, and a short dharma discussion. By *annotated* we mean that periodically we will stop the service to explain the significance of what we are doing ([meetup page](http://www.meetup.com/Beginners-Mind-Zen/)).
 Please consider joining us!
-
-
-
 
 
 

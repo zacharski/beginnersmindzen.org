@@ -1,0 +1,15 @@
+---
+layout: post
+title:  Wild, Wild Country
+categories: [gurus]
+tags: [practice]
+---
+
+
+[<img class='fullwidth' src='/img/Wild-Wild-Country-Promo-Image.jpg'/>](/img/Wild-Wild-Country-Promo-Image.jpg.jpeg) <span class='marginnote'>I am using this copyrighted opening graphic image under Fair Use to identify the documentary.  The copyright is believed to belong to Netflix. </span>
+
+ My wife, Cheryl and I have been watching the Netflix documentary series [Wild, Wild, Country](https://www.netflix.com/title/80145240). It's about the Indian Guru [Bhagwan Shree Rajneesh](https://en.wikipedia.org/wiki/Rajneesh) (Osho), his assistant [Ma Anand Sheela](https://en.wikipedia.org/wiki/Ma_Anand_Sheela), and the community they formed in Oregon, [Rajneeshpuram](https://en.wikipedia.org/wiki/Rajneeshpuram) in the 1980s. I highly recommend this documentary and I am not alone -- on Rotten Tomatoes it earned a 98% tomato rating. That's not to say the documentary is perfect. It doesn't address the teachings of the Bhagwan nor what his followers, the sannyasins believed. It focuses more on the cascade of bad things rather than the positive. And to accentuate that, we get a tense, ominous soundtrack.
+
+ This is a complex story.  Bhagwan Shree Rajneesh had some good ideas and good intentions. I think the Oregon Rajneeshpuram was filled with compassionate people who were trying to live a good life. People from all walks of life left those lives to live on a commune in a desolate  region of Oregon.  I believe they did this to create a better life for themselves and build a better society. People from the local town of Antelope were also compassionate people who cared for their families and people in their town. But ego got in the way. The sannyasins felt they were better than the locals who in their minds were hicks. And the locals got more and more concerned as the population of Rashneeshpuram expanded into the thousands. People on both sides were getting more and more bizarre, bombs exploding, bioterrorism. Eeeks! Watching this, in the comfort of my living room, 35 years after the fact, I can see that there were many opportunities to defuse the situation, and for the local community and Rashneeshpuram to live in harmony. It is easy to see how misguided they were. And here is where my ego enters the picture.  I think *Those people are misguided* and I would not be. I, sitting here in my living room, perpetuate the problem. You see, *those people are misguided I would not be* is a me vs. them thought and antithetical to buddhism. And with a little reflection I see that I share the feelings and emotions those townspeople and sannyasins felt. The sannyasins felt they were better than the townspeople and I have had feelings of being better too -- and those feelings still arise. The townspeople had some fear of people different from them, and I have those fears too. We all have the potential for explosive conflict. Our path is to recognize feelings such as fear and anger as they arise in us, refuse to react out of them and respond in an enlightened way. 
+
+
